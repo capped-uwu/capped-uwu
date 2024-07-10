@@ -1,1 +1,1 @@
-よ！俺の名前はcapped！ruirui empireのプログラミング担当だよ！サイトとかを作成してruirui empireに貢献してます！
+USE MY GRABBER KIDS
